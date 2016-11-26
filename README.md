@@ -1,2 +1,3 @@
 # hello-world
-Trying out github
+I got a sweet asian chick
+And she go lo mein.
